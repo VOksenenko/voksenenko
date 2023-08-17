@@ -2,7 +2,7 @@ Resume
 
 Vlad Oksenenko
 
-35 yo 
+36 yo 
 
 DevOps Engineer 
 
